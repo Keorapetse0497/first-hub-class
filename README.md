@@ -15,6 +15,6 @@ crotchet enthusiast
 
 _I'm here to create, inspire and leave a mark. Every line i write is powered by faith, purpose and real love for what I do(Real and Raw)_
 
-[Linkedin Profile](https://www.linkedin.com/in/TlhohonolofatsokQoane)
+[Linkedin Profile](https://www.linkedin.com/in/Tlhohonolofatsok.Qoane)
 
 
